@@ -1,4 +1,4 @@
-
+advanced Scripts for catch and tame offers the most advanced catch and tame Script, with no cooldown and undetectable. Perfect for dominating any
 
 
 
